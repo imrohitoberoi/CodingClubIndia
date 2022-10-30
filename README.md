@@ -177,6 +177,8 @@ Shashank Pal (Ghaziabad)
 
 Shivam Gupta (Delhi)
 
+Rohit Oberoi (Chandigarh)
+
 Ayush Das (Delhi)
 
 Vartika(Bhopal)
